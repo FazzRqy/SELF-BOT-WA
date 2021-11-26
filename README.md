@@ -1,2 +1,7 @@
-# SELF-BOT-WA
-Bot masih dalam tahap pengembangan...
+## *INFO*
+**BOT MASIH DALAM TAHAP PENGEMBANGAN...**
+
+
+## *INFO2*
+**JIKA ADA FITUR YANG ERROR BOLEH CHAT LANGSUNG KE OWNERNYA
+Https://wa.me/6285211545148**
